@@ -1,1 +1,0 @@
-# cloud-assignment-2
